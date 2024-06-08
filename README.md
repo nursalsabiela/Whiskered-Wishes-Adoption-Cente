@@ -40,3 +40,5 @@ Veterinary Care (Find a trusted vet for all your pet's medical needs)
 Training Tips (Learn how to properly train and socialize your new pet)
 Nutrition (Get advice on a healthy diet and feeding schedule)
 Grooming (Keep your pet looking and feeling their best)
+
+the list of animals can be founded in our website (https://furry-friends-adoption-ta7spbt.gamma.site/)
